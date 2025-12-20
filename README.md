@@ -3,3 +3,5 @@
 
 <img width="569" height="438" alt="Render_Skin_Stargazer_Rocket" src="https://github.com/user-attachments/assets/93016108-9eda-470f-94a3-868c838d9c7f" />
 kin Rocket.;!
+
+![Visitor Count](https://profile-counter.glitch.me/Ele050/count.svg)
