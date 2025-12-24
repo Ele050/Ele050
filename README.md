@@ -5,3 +5,5 @@
 kin Rocket.;!
 
 a minor and has ADuHD.
+
+![Profile Views](https://komarev.com/ghpvc/?username=Ele050) 
