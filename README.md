@@ -4,6 +4,6 @@
 <img width="569" height="438" alt="Render_Skin_Stargazer_Rocket" src="https://github.com/user-attachments/assets/93016108-9eda-470f-94a3-868c838d9c7f" />
 kin Rocket.;!
 
-a minor and has ADuHD.
+a minor and has AuDHD.
 
 ![Profile Views](https://komarev.com/ghpvc/?username=Ele050&label=Rocketlings)
