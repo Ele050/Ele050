@@ -5,3 +5,7 @@
 # A mighty soldier gets a son and this is what pops out? 
 # "Who are you?" 
 # Darn, I'm not very popular with the new generation, clearly.
+
+![OIP](https://github.com/user-attachments/assets/de19a625-09db-4454-9a22-9c8dd7c277f5)
+
+# CHECK OUT MY STRAWPAGE!!!!!!!!!!!!!!!
