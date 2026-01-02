@@ -8,4 +8,7 @@
 
 ![OIP](https://github.com/user-attachments/assets/de19a625-09db-4454-9a22-9c8dd7c277f5)
 
-# CHECK OUT MY STRAWPAGE!!!!!!!!!!!!!!!
+My name is Dom Eris Almila or Dominic Eris Almila longer,,, i like uh
+- AGE:: 15
+- NATION:: GERMANY / TURKIYE
+- BAN HAMMER IRL HAUYSLGWSEGTYUUWEHGIUOEHAG ALSO I HATE SUPSPACE AND SCYTHE IRL AND THE GAME
