@@ -19,4 +19,4 @@ My name is Dom Eris Almila or Dominic Eris Almila longer,,, I prefer Eris or Dom
 I can trust people easily, and on pony town i get bored fast, too fast. So if we talk around 1 hour or 2, I'll probably ask for your Discord or Roblox. Sorry! I can't stop it. A no is always accepted! 
 
 
-- Also!! kin is Ban Hammer, sometimes people think I kin Dom cause of my name (in 2022 I did kin lol!!)
+- Also!! kin is Ban Hammer
