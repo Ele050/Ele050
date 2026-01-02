@@ -8,7 +8,15 @@
 
 ![OIP](https://github.com/user-attachments/assets/de19a625-09db-4454-9a22-9c8dd7c277f5)
 
-My name is Dom Eris Almila or Dominic Eris Almila longer,,, i like uh
+My name is Dom Eris Almila or Dominic Eris Almila longer,,, I prefer Eris or Dom!! I have a tiktok acc that i do peoples request for art but,,, no one ever did im kinda sad abt it BUT IDC!!! I CAN BE ALONE
 - AGE:: 15
-- NATION:: GERMANY / TURKIYE
-- BAN HAMMER IRL HAUYSLGWSEGTYUUWEHGIUOEHAG ALSO I HATE SUPSPACE AND SCYTHE IRL AND THE GAME
+- NATION:: DE / TR
+- GENDER:: Genderfluid
+- DISABILITIES:: Ammophobia, ADHD, low blood on legs, insomnia
+- LIKES:: Violin, PHIGHTING!, Hetalia, FNaF, Dinosaurs, Sharks, Dandys World
+
+###  WARNING
+I can trust people easily, and on pony town i get bored fast, too fast. So if we talk around 1 hour or 2, I'll probably ask for your Discord or Roblox. Sorry! I can't stop it. A no is always accepted! 
+
+
+- Also!! kin is Ban Hammer, sometimes people think I kin Dom cause of my name (in 2022 I did kin lol!!)
