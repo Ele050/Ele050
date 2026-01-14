@@ -27,7 +27,7 @@ I can trust people easily, and on pony town i get bored fast, too fast. So if we
 - Under 13 or 18 plus :(
 - Racists
 - Shy people (Probs because i dont want to make you uncomfortable, can int firstly tho)
-- Unfunny jokes (Bully)
+- Bully jokes
 - Clingy ppl
 
 ### INT
