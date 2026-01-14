@@ -24,8 +24,12 @@ I can trust people easily, and on pony town i get bored fast, too fast. So if we
 
 
 ### DNI
-- under 13 :(
-- racists
-- shy people (probs because i dont want to make you uncomfortable, can int firstly tho)
-- unfunny and weird jokes (no pls)
-- clingy ppl
+- Under 13 or 18 plus :(
+- Racists
+- Shy people (Probs because i dont want to make you uncomfortable, can int firstly tho)
+- Unfunny jokes (Bully)
+- Clingy ppl
+
+### INT
+- Hetalia fans
+- Int freely if u are on in the dni list
