@@ -20,3 +20,12 @@ I can trust people easily, and on pony town i get bored fast, too fast. So if we
 
 
 - Also!! kin is Ban Hammer
+
+
+
+### DNI
+- under 13 :(
+- racists
+- shy people (probs because i dont want to make you uncomfortable, can int firstly tho)
+- unfunny and weird jokes (no pls)
+- clingy ppl
