@@ -32,4 +32,4 @@ I can trust people easily, and on pony town i get bored fast, too fast. So if we
 
 ### INT
 - Hetalia fans
-- Int freely if u are on in the dni list
+- Int freely if ur NOT in the dni list
