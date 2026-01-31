@@ -9,7 +9,7 @@
 ![OIP](https://github.com/user-attachments/assets/de19a625-09db-4454-9a22-9c8dd7c277f5)
 
 My name is Dom Eris Almila or Dominic Eris Almila longer,,, I prefer Eris or Dom!! I have a tiktok acc that i do peoples request for art but,,, no one ever did im kinda sad abt it BUT IDC!!! I CAN BE ALONE
-- AGE:: 15
+- AGE:: 16!
 - NATION:: DE / TR
 - GENDER:: Genderfluid
 - DISABILITIES:: Ammophobia, ADHD, low blood on legs, insomnia
